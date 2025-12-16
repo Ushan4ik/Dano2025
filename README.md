@@ -1,4 +1,4 @@
-Привет проверяющий тут ты найдешь весь код и ссылки на иследования
+Привет проверяющий тут ты найдешь весь код и ссылки на иследования\
 Статья 1: \
 https://www.researchgate.net/publication/381911420_THE_IMPORTANCE_OF_COMPETITION_IN_THE_FORMATION_OF_A_FAVORABLE_BUSINESS_ENVIRONMENT
 
